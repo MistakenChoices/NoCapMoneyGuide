@@ -1,5 +1,6 @@
 # NoCapMoneyGuide
 The official no cap money guide, which are reviews and guides for beermoney and etc.
+Note: Before trusting any guide at all, (Including this one) you should check trusted sources and etc. (Such as reddit, which should be fairly reliable) [r/beermoney](reddit.com/r/beermoney)
 
 
 🗺 Websites
@@ -12,7 +13,7 @@ The official no cap money guide, which are reviews and guides for beermoney and 
 
 
 
-📱 Android Apps
+📱 Android Apps to AVOID
 - Lucky Chest
 
 Complete waste of time! (Don't use at all.)
