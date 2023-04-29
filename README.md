@@ -3,6 +3,8 @@ The official no cap money guide, which are reviews and guides for beermoney and 
 Note: Before trusting any guide at all, (Including this one) you should check trusted sources and etc. (Such as reddit, which should be fairly reliable) [r/beermoney](reddit.com/r/beermoney)
 
 
+## 👁 WARNING: Don't continue before verifying your sources. [Even this one could be fake. Many youtubers and etc are very manipulative.)
+
 🗺 Websites
 - [Swagbucks](https://www.swagbucks.com/p/register?rb=66879362)
 ⚠ Very low/Hard to get money (even in 1 day.)
